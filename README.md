@@ -1,2 +1,2 @@
-# Web Design Projects by Victor S.
+# Web Design Projects by Victor
 Web Design Projects
